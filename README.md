@@ -1,1 +1,1 @@
-# dekopinda-kota-langsa
+# dekopinda-karanganyar
